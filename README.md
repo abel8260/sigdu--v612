@@ -9,8 +9,8 @@
 
 ## 🔞 Adult-conteudo:
 
--Inclui gore;
-
+- inclui gore;
+- temas sensíveis
 
 
  
